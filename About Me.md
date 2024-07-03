@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheWelshNugget
 - 👀 I’m interested in: Harmless Hacks or just something stupid
 - 🌱 I’m currently learning: Flipper Zero
-- 💞️ I’m looking to collaborate on I dunno
+- 💞️ I’m looking to collaborate on: I dunno
 - 📫 How to reach me: Email me on: Welsh.nugget037@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Favourite game is Cult Of The Lamb
